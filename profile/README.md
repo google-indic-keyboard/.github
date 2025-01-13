@@ -1,4 +1,4 @@
-## Google Indic Keyboard: A Comprehensive Guide
+## Download Google Indic Keyboard for Android
 
 ### Introduction
 The Google Indic Keyboard is a versatile and user-friendly tool that allows users to type in various Indian languages. Designed to bridge language barriers, this keyboard caters to the diverse linguistic needs of India, offering seamless typing experiences across Android devices.
